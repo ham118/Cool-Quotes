@@ -382,6 +382,7 @@ The achievement of one goal should be the starting point of another. | Alexander
 He who dares wins. |Winston Churchill
 You may be disappointed if you fail, but you are doomed if you do not try. |Beverly Sills
 Your ideas are like diamonds without the refining process, they are just a dirty rock, but by cutting away the impurities, they become priceless. |Paul Kearly
+If you fail, never give up because FAIL means 'First Attempt In Learning'. |Abdul Kalam
 
 ## Dreams Quotes
 
